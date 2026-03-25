@@ -2,7 +2,7 @@
 - 👀 I’m interested in UI/UX.
 - 🌱 I’m currently learning Figma, HTML, CSS, JavaScript, and UI/UX design principles
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me -Email -rakiya9573@gmail.com,Whatsapp-
+- 📫 How to reach me -Email rakiya9573@gmail.com,Whatsapp-
 0768589573
 - 😄 Pronouns: ...
 - ⚡ Fun fact: Love To Play Games.
